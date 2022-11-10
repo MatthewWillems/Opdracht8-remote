@@ -1,1 +1,1 @@
-Wist je dat een vrouw gemiddeld 2 jaar van haar leven in ene badkamer doorbrengt.
+Wist je dat een vrouw gemiddeld 2 jaar van haar leven in een badkamer doorbrengt.
